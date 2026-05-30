@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name]! 👋
+# Hi there, I'm Manish Mothakani 👋
 
 ### 🎓 Computer Engineering Student at Saginaw Valley State University (Class of 2029)
 
